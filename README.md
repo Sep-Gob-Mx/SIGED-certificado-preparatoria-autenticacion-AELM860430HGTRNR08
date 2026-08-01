@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AELM860430HGTRNR08
+AELM860430HGTRNR08
